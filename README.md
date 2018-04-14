@@ -13,4 +13,4 @@ These are for reference only and are meant to aid you into doing your own work. 
 
 If you need help with any of the homework assignments, I much rather have you email me personally and ask a question instead of just copying my work.
 
-You can email me at drtran83@live.com
+You can email me at tom.tran83@outlook.com
